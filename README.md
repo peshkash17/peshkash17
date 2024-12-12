@@ -13,7 +13,8 @@
 
 - 📫 How to reach me **kalpeshpawar17680@gmail.com**
 
-- ⚡ Fun fact **I am Biotech Guy who loves coding**
+- ⚡ Fun fact **I am a
+  Biotech Guy who loves coding**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
